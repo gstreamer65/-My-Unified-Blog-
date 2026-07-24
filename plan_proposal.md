@@ -1,6 +1,6 @@
 # Sprint 11 Project Plan Proposal
 
-**NAME:** Daud Mehmud[cite: 2]
+**NAME:**  Mehmud[cite: 2]
 **DATE SUBMITTED:** 2026-07-03[cite: 2]
 
 ## Modifications
